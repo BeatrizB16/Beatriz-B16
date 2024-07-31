@@ -6,4 +6,4 @@
    Me.Beatriz Batista 
    - **Estou** Estudadando Alura.
 
-![image](https://github.com/user-attachments/assets/f455a002-a8c9-456c-961a-7c9edc8c90ef)
+https://media1.tenor.com/m/265-3bv1n-MAAAAC/cat.gif
