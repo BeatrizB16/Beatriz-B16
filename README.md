@@ -5,6 +5,6 @@
 
    Me.Beatriz Batista 
    - **Estou** Estudadando Alura.
-   - ![image](https://github.com/user-attachments/assets/485a33b6-59b1-4a5e-97b2-15dadb8296c0)
+   - https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif
 
 
